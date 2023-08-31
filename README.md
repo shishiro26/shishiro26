@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Web development<br>👯 I’m looking to collaborate on projects that require challenging skills<br>
+🔭 I’m currently working on Web development<br>👯 I’m looking to collaborate on projects that require challenging skills<br>📫 How to reach me dheeravathshishiro@gmail.com<br>💬 Ask me about Webdevelopment <br>
 
 
 ## 🌐 Socials:
